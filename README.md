@@ -1,5 +1,5 @@
 - 👋 olÁ, sou a @lalamartins
-- 👀 Meus interesses é aprender e ajudar meus estudantes na disciplina de tecnologia
+- 👀 Meu interesse é aprender e ajudar meus estudantes na disciplina de tecnologia
 - 🌱 Espero que possamos criar bons projetos
 - 💞️ Eu espero colaborar com a aprendizagem do estudante e também com a minha
 - 📫 How to reach me ...
